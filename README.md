@@ -1,6 +1,4 @@
 - 👋 QingwenWan
-- 👀 www.hirain.com
-- 🌱 ATE engineer
 - 💞️ one day one day
 - 📫 2545556799@qq.com
 
